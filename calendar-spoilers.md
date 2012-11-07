@@ -3,7 +3,7 @@ Calendar & Outline
 
 1. Sicily: bungalow
 2. London
-   a. Bank
+   a. Bank - Paranoia
    b. Hotel room
    c. Dinner
    d. Bathroom
