@@ -168,15 +168,47 @@ The woman shrugged, non-committal.
 
 The woman kept up the gentle attitude, and let Xochitl keep her space, but there was a wall there that Xochitl wasn't going to get through.
 
-"For now it is Camila.  It would be better if you think of me that way."
+"For now it is Camila.  It would be better if you think of me that way.  Another name would not help."
 
 Xochitl squinted at her, as much as her puffy eyes would allow.
 
 "So I don't trip up and call you Candice in front of someone?"
 
-Candice-Camila gave a slight twitch of her head that was an acknowledgment without accusation.  Xochitl's mind whirled.
+Camila gave a slight twitch of her head that was an acknowledgment without accusation.  Xochitl's mind whirled.
 
 "Hey, is Franklin&mdash;  Is he a *job*?"  The last word came out with a disgusted effort.
 
-Xochitl could see the conflict raging behind Candice-Camila's eyes.  The woman tried to keep it in check but failed.  Her body language was uncomfortable, and her motion degraded to sharp movements.  Xochitl saw something else that she recognized, but she couldn't place it.
+Xochitl could see the conflict raging behind Camila's eyes.  The woman tried to keep it in check but failed.  Her body language was uncomfortable, and her motion degraded to sharp movements.  Xochitl saw something else that she recognized, but she couldn't place it.
+
+Camila, now self-conscious, pulled her hands into her lap.  She stared past Xochitl, not meeting her eyes.  Her fingers began the ordered flex and thrum that reminded Xochitl of a lioness cleaning her claws of shredded prey.
+
+But the look on Camila's face wasn't aggressive.  It was conflicted.
+
+"What?  What's up?"
+
+Xochitl played a hunch and scooted back toward her, quieting Camila's fingers with her own.
+
+"Hey.  What is it?  If you can't tell me, who are you gonna tell?"
+
+That, at last, garnered a small, sad smile.
+
+"Franklin *is* a job."
+
+Part of Xochitl knew that answer was coming, but that didn't stop the gasp from escaping her throat.
+
+"You don't have to&mdash;"  She couldn't bring herself to say it. "He's not … a target … is he?"
+
+Camila swallowed and frowned.  Xochitl was about to assume the worst when Camila whispered "not yet".
+
+Xochitl gave Camila an involuntary squeeze.
+
+"But how?  What's he done?  He's just a kernel hacker."
+
+Camila refused to meet her eyes.  Nothing in the room moved or made a sound, leaving Xochitl only the throb of her pulse in her ears.  She spoke after holding out as long as she could.
+
+"Hey.  Come on.  Walk me through it.  Something's going on.  Maybe I can help."
+
+Camila looked down at their hands, now intertwined and white-knuckled from the pressure of their shared grips.  Xochitl continued to stare at her half-closed eyelids, willing her to look up.  She didn't.
+
+"Okay, how about twenty questions?  How long have you been seeing him?"
 
