@@ -114,11 +114,69 @@ She moved to free enough of her arms to hug back.  The two woman stood there, ne
 
 "Candice.  What are you doing here?"
 
-The woman's body stiffened the moment her name was spoken and she stepped back away from Xochitl.  Xochitl could see that, like herself, she had wet eyes that had stopped before streaming tears.
+The woman's body stiffened the moment her name was spoken and she stepped back away from Xochitl.  Xochitl could see that, like herself, she had glistening eyes that had stopped before streaming tears.
 
 "We cannot talk abut this now.  Later."
 
 Her hands, still conjuring visions of claws in Xochitl's memory, moved to grab tissues from the dispenser.
 
 "Where are you staying?"
+
+---
+
+Xochitl knew who was on the other side of the door, but she couldn't stop herself from looking through the peephole.  She hesitated, but thought she saw the corners of a fisheye-warped smile.  Her reluctance thawed in the memory of the flying leap of a hug that afternoon.  She drew back the chain and opened the door, stepping almost behind it to let the other woman enter.  The door was closed and rechained before either woman looked at the other.
+
+They embraced again without knowing who moved first.  Xochitl was sobbing within seconds, with the running nose, flushed neck, and slobbering drool of a full-on waterworks display.  She felt the other woman return the hug and support her as she shuddered and leaned into it.  A hand brushed her hair from her face, then from the back of her head to her back, eliciting an even tighter squeeze.
+
+She felt herself being walked to the edge of the bed, where they sat for several minutes.  When it looked like Xochitl could sit up on her own, the other woman snuck away to the bathroom to return with a box of tissues.
+
+"I'm sorry," Xochitl said between sniffles.  "I don't know what this is."  She made a circling motion with her hand, pointing at her head and neck.
+
+The woman continued to stroke Xochitl's hair, plucking used tissues from between Xochitl's fingers and replacing them with fresh ones.
+
+"I do."  She spoke with a gentleness that Xochitl had only heard once before.  It was both foreign and natural at the same time.  "Have you been alone the whole time?"
+
+The question was asked with care, but it hit Xochitl like a physical blow.  The answer was obvious, and it made Xochitl return to back-spasming sobs that took a dozen more tissues to subside.
+
+"I had thought you would go back home."  The statement was a pleading whisper that almost came out as a question.
+
+"I&mdash;  I&mdash;  I didn't think I could.  I didn't think it was safe.  I didn't know if the passport would …"  She waved her hands in front of her, helpless before the infinity of possibilities that ended with an unnameable Bad Thing.  "Everyone was just … gone.  You.  Monique.  Gil.  Everyone."
+
+She collected herself, sitting up straight and pulling in several deep breaths.
+
+"I had the money, but I couldn't figure out what to do with it."  She looked into the other woman's eyes and a lopsided grin came to her.  "You should have seen the first time I had to go back to the bank for more money."  She laughed, which stopped up her nose again.  "I thought everyone in the place was staring at me."
+
+The other woman grinned, but the only thing to reach her eyes was pain.
+
+"Stupid, I know."  She rolled her eyes at the memory.  "And now I'm hysterical and bawling about it."  She hung her head.  "It's just been so long.  Franklin's the first person I've really spoken to since last year.  I don't know how you do it."
+
+The woman reached out and put her hand on Xochitl's arm.  "I do not.  I do not think I could do that, either."
+
+Xochitl knitted her eyebrows.  "Really?  What do you do?"
+
+The woman's smile was sardonic.  "Work.  There is always work."
+
+"Sure," Xochitl smirked, "but I don't know how you do that, either.  Just a week of your work took a decade or two off of my life."
+
+The woman shrugged, non-committal.
+
+"I mean, the names alone … how do you get used to a different alias every month?"
+
+"I&mdash;"
+
+"Waitasec!"  Xochitl shrugged away from the woman, sliding a bit down the length of the bed.  "I never did get a straight answer.  Is Candice your real name?  Or is it Camila?"
+
+The woman kept up the gentle attitude, and let Xochitl keep her space, but there was a wall there that Xochitl wasn't going to get through.
+
+"For now it is Camila.  It would be better if you think of me that way."
+
+Xochitl squinted at her, as much as her puffy eyes would allow.
+
+"So I don't trip up and call you Candice in front of someone?"
+
+Candice-Camila gave a slight twitch of her head that was an acknowledgment without accusation.  Xochitl's mind whirled.
+
+"Hey, is Franklin&mdash;  Is he a *job*?"  The last word came out with a disgusted effort.
+
+Xochitl could see the conflict raging behind Candice-Camila's eyes.  The woman tried to keep it in check but failed.  Her body language was uncomfortable, and her motion degraded to sharp movements.  Xochitl saw something else that she recognized, but she couldn't place it.
 
